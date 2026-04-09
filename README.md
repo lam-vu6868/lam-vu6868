@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hello, I'am Ly Lam Vu 
+Hello, I'm Ly Lam Vu 
 
 
 ## 🌐 Socials:
